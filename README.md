@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Im Aeroespace student
+trying to get knowledge in coding
+happy to learn about new coding tips
+
